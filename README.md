@@ -1,6 +1,6 @@
 # Fix Canada Real Quick
 ## Key things that should 💯% be adopted in Canada
-
+[![DOI](https://zenodo.org/badge/963704793.svg)](https://doi.org/10.5281/zenodo.15186792)
 ### 1. Push back the voting age 📪
 
 Currently, in Canada, the **voting age is 18** and in some places like **Alberta the DRIVING AGE IS 14.**
