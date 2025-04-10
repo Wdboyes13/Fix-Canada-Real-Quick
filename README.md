@@ -57,4 +57,5 @@ You are **NEVER** too young to take action. You can do so much no matter your ag
 - **Taking part in petitions** (theres no minimum age!)
 
 Our planet isn't lost - it's just waiting for **YOU** ❤️🌍  
+  
 Fix Canada Real Quick © 2025 by William B is licensed under CC BY-ND 4.0. To view a copy of this license, visit https://creativecommons.org/licenses/by-nd/4.0/
